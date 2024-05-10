@@ -15,7 +15,9 @@ So I feel like I´m still in the exploring phase, I´m still trying to figure ou
 
 Looking at it, review of my year is pretty short. Which makes sence when I think about it. Nothing big happened and it was a loading stage.
 So I am grateful that in those 365 days I enjoyed my last semester and that I managed to make those decisions.
+In the final analysis it was a pretty good year.
 
+Excited for the next one!
 
 
 
