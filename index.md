@@ -11,6 +11,9 @@ So I feel like I´ve made a lot of decisions and in the next 12 months I´m goin
 
 But it´s not as bad as it sounds. It´s not bad at all. I continue to explore new things and I am finding out which of those things are important to me, which ones
 I want to keep in my next 365 days and in my life.
+So I feel like I´m still in the exploring phase, I´m still trying to figure out everything. Which means my last year feels pretty average. I was trying to survive the normal days and at the same time thinking about the future days and how to make them as enjoyable as possible.
+
+
 
 
 
